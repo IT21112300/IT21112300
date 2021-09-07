@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IT21112300
-- Username - IT21112300
+- Github Username - IT21112300
 - Student registration no - IT21112300
  --------------------------------------------------------
 
